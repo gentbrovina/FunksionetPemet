@@ -1,0 +1,2 @@
+# FunksionetPemet
+Gent Brovina - Student
